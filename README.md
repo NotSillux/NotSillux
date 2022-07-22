@@ -1,3 +1,2 @@
 - 👋 Hi, I’m @NotSillux
-- 🌱 I’m currently working on a FiveM Anti Cheat
 - 📫 Discord: Sillux#7777
