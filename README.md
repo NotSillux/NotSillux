@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @NotSillux
-- 📫 Discord: Sillux#7777
+- 📫 Discord: Sillux#2372
